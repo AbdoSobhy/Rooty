@@ -1,3 +1,0 @@
-# rooty
-# rooty
-# Rooty
